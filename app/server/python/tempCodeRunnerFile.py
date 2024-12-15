@@ -1,0 +1,1 @@
+C:\Users\Felipe\AppData\Roaming\Mozilla\Firefox\Profiles\yx2lf1lz.default-release
